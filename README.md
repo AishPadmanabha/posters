@@ -1,2 +1,2 @@
 # posters
-A collection of the posters I've made for multiple events
+A collection of the posters/pamphlets(/anything really) I've made for multiple events
